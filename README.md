@@ -5,3 +5,4 @@
 - [From Caterpillar to Butterfly](https://jyotirgamya.org/article/caterpillar-butterfly/)
 - [The Caterpillar's Struggle](https://jyotirgamya.org/article/caterpillars-struggle/)
 - [Strengthening Willpower](https://jyotirgamya.org/article/strengthen-will-power/)
+- [Want Won't Will: Understanding and Enhancing Your Self-Control](https://jyotirgamya.org/opinion/want-wont-will/)
